@@ -1,0 +1,2 @@
+# kuzgi-sherlar
+kuzgi oqshomlar
